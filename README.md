@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on Tainá
 - 📫 How to reach me @deryckk_10
-- 😄 Pronouns: He
+- 😄 Pronouns: Hee
 - ⚡ Fun fact: SOu extraordinaramente engraçado
 
 <!---
