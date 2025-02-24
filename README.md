@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DeryckJogador
 - 👀 I’m interested in Cash
 - 🌱 I’m currently learning Python
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on Tainá
 - 📫 How to reach me @deryckk_10
 - 😄 Pronouns: He
 - ⚡ Fun fact: SOu extraordinaramente engraçado
